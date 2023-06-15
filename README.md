@@ -1,0 +1,3 @@
+- 👋 Hey everyone I'm Carson!
+- 🏛 I’m currently studying astrophysics at UNC Chapel Hill
+- 📫 You can reach me at: carsonfrun@gmail.com
